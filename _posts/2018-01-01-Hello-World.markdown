@@ -1,6 +1,6 @@
 # The Beginning is a very delicate time...
 
-[![Audi R8](http://img.youtube.com/vi/KOxbO0EI4MA/0.jpg)](https://www.youtube.com/watch?v=KOxbO0EI4MA "Audi R8")
+[![Dune](https://raw.githubusercontent.com/freemanfinicum/Edward/gh-pages/images/DuneVirginiaMadsen.jpg)](https://www.youtube.com/watch?v=VZ2Nfvc8WMw "Dune")
 
 
 
