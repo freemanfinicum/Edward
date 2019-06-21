@@ -4,12 +4,11 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+___Written in the best King's English...___
 
-### More Information
+## We the People of the United States, in Order to form a more perfect Union, establish Justice, insure domestic Tranquility, provide for the common Defense, promote the general Welfare, and secure the Blessings of Liberty to Ourselves and our Posterity, do ordain and establish this Constitution for the United States of America...
 
-A place to include any other types of information that you'd like to include about yourself.
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[ereidhead@gmail.com](mailto:ereidhead@gmail.com)
