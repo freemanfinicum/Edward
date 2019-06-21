@@ -4,7 +4,7 @@ gems:
 
 # Exclude these files from your production _site
 permalink: /:title/
-name: Edward's Personal Blog...
+name: Edward's Personal Blog
 sass:
   style: :expanded # You might prefer to minify using :compressed
 
@@ -44,4 +44,4 @@ footer-links:
   googleplus: # anything in your profile username that comes after plus.google.com/
 
 
-description: This is Where I get to Share Stuff
+description: This is Where I get to Share Stuff...
