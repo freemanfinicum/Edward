@@ -80,6 +80,3 @@ Connor Reidhead Lives!
 border="0" alt="Web Site Hit Counters"></a>
 <br><a href="http://www.easycounter.com/">HTML Counter</a>
 
-
-
-
