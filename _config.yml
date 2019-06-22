@@ -4,7 +4,7 @@ gems:
 
 # Exclude these files from your production _site
 permalink: /:title/
-name: Edward's Personal Blog
+name: Edward's Personal Blog-
 sass:
   style: :expanded # You might prefer to minify using :compressed
 
@@ -33,12 +33,12 @@ footer-links:
   email:
   facebook:
   flickr:
-  github: barryclark/jekyll-now
+  github: 
   instagram:
   linkedin:
   pinterest:
   rss: # just type anything here for a working RSS icon
-  twitter: jekyllrb
+  twitter:
   stackoverflow: # your stackoverflow profile, e.g. "users/50476/bart-kiers"
   youtube: # channel/<your_long_string> or user/<user-name>
   googleplus: # anything in your profile username that comes after plus.google.com/
@@ -46,4 +46,10 @@ footer-links:
 
 description: This is Where I get to Share Fun Stuff...
 
-theme: jekyll-theme-cayman
+
+<a href="http://www.easycounter.com/">
+<img src="//www.easycounter.com/counter.php?reidhead"
+border="0" alt="Web Site Hit Counters"></a>
+<br><a href="http://www.easycounter.com/">HTML Counter</a>
+
+
