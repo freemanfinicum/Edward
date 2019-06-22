@@ -5,7 +5,6 @@ permalink: /info/
 ---
 
 <a href="http://sosrff.tsu.ru/new/shm.jpg" target="_blank">Live Schumann Resonance</a>
-<a href="https://www.coinex.com/" target="_blank">Coinex.com</a>
 
 
 <a href="https://www.easycounter.com/">
