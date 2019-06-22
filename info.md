@@ -11,6 +11,10 @@ permalink: /info/
 <a href="http://outbreaks.globalincidentmap.com/home.php" target="_blank">Live Incident Map</a>
 
 
+
+
+
+
 <a href="https://www.easycounter.com/">
 <img src="https://www.easycounter.com/counter.php?reidhead,edwardinfo"
 border="0" alt="Web Site Hit Counters"></a>
