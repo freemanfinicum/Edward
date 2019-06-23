@@ -24,7 +24,7 @@ ___Taplining aka agreement to this or that.  Which interrupts your ability to ju
 
  :alien: Mental/Pyschological Taplines :alien: 
 
-:alien: Emotional/Spiritual Taplines :alien: 
+ :alien: Emotional/Spiritual Taplines :alien: 
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=PL8xPT6VXv6UfW5N-ejcaHzDK4OR3vF1kx" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
