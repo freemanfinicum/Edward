@@ -16,9 +16,9 @@ Possibilities...  REcognizing your personal Sovereignty.  Taking Authority and R
 
 Taplining aka agreement to this or that.  Which interrupts your ability to just BE. I notice how nature BE's all around me.  What I get is; animals and nature don't create stuff to deal with.  The reside in pure Awareness.  The just BE...  It's a beautiful thing.
 
-Physical/Sexual Taplines
-Mental/Pyschological Taplines
-Emotional/Spiritual Taplines
+- Physical/Sexual Taplines
+- Mental/Pyschological Taplines
+- Emotional/Spiritual Taplines
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=PL8xPT6VXv6UfW5N-ejcaHzDK4OR3vF1kx" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
