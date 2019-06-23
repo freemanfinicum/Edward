@@ -17,7 +17,7 @@ This is what's REAL in my life...
 5.  Possibilities...  REcognizing your personal Sovereignty.  Taking Authority and Responsibility over your Immortal Spirit. Getting off the wheel of re-incartion for another Kontrolled lifetime until you "get it". Developing an Awareness of REAL UNIverses with No Restrictions and BEing.  
 
 
-Taplining aka agreement to this or that.  Which interrupts your ability to just BE. I notice how nature BE's all around me.  What I get is; animals and nature don't create stuff to deal with.  They don't create Happiness, Depression, Politics, Religion ect... They reside in pure Awareness.  The just <a href="https://www.youtube.com/watch?v=Evht41pyNGU/" target=" blank">BE</a>...  It's a beautiful thing...
+___Taplining aka agreement to this or that.  Which interrupts your ability to just BE. I notice how nature BE's all around me.  What I get is; animals and nature don't create stuff to deal with.  They don't create Happiness, Depression, Politics, Religion ect... They reside in pure Awareness.  The just <a href="https://www.youtube.com/watch?v=Evht41pyNGU/" target=" blank">BE</a>...  It's a beautiful thing...___
 
 
 - :alien:  Physical/Sexual Taplines
