@@ -27,6 +27,9 @@ ___Taplining aka agreement to this or that.  Which interrupts your ability to ju
 3.  Emotional/Spiritual :alien: Taplines
 
 
+### Who is "the Visitor"...
+
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=PL8xPT6VXv6UfW5N-ejcaHzDK4OR3vF1kx" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
