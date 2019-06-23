@@ -1,11 +1,30 @@
 ### Tapline-Tapline-
 ### I'm calling on your Tapline-
-### For Your Spirit-
+### For Your Love-
 
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxlZWrac-bQ" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-👽🦎 THE 'VISITOR' IS HERE by DUANE THE GREAT WRITER... "From Another World in Our Galaxy comes... 'THE VISITOR!' I spoke with Him on The RealSide LifeIS, and translated what He told Me as a Brief Explanation why He is Here... "Hello Duane, You are The NUMan, and I have come to Warn Your Planet Earth and Other Planets that still have some life on them about the RATS. The same Reptilian Alien TapLinerS (RATS) that Rule Your Planet also Ruled Mine and have Destroyed My Planet's Atmosphere & Natural Environment with Harmful GeoEngineering, as they are Doing Here! My Planet is basically Dead from all the Government Planned Pollution & Poisoning! The RATS created similar systems to Yours on My Planet, such as politics, religion & gods, spiritual masters, dumbed down education & scientific madness! The RATS always Destroy Every Planet They Rule as HUman Farming, and they are Doing This to Yours! It is easy to See that the Asleep People on Earth are Subconsciouly Controlled and Agreeing to Their Own Demise. My Space Craft was shot down by the same Laser Planes that started the Fires in California. They know why I am here and they are looking for Me! I am here to help People WakeUp to TapLining, as You are Doing, Duane. For many years I have Read Your Nubooks, and most unaware people do not realize there is No Paradise Here or anywhere in Creation. The RATS are the False Gods, as they are the Created Worshiped Gods for people to Stay Slaves with for More & More Lifetimes of Drudgery & Struggling! REBISAR & The RealGuides know I am Here to Help You and Your NUFriends to try and Save This Planet Earth! Also... 5G is a DeathTrap for Your Planet!" So Said 'The Visitor!' There was a lot more to Our Meeting on The RealSide, and anyone can Learn to SeeeMore by Singing 'NU~U~U~U' and Contacting REBISAR & PALL & The Real UNUversal Guides on The RealSide LifeIS. Watch Your DreamVisions for RealAnswers! Contact KELSEY LYNNE BROWN & HENRY DRAPER & DEAN VAL on FACEBOOK.
+
+This is what's REAL in my life...
+
+Who are the RATS...  Reptilian Alien TaplinerS-  
+What are they up to...  Taplining-  Kontrolling you in every which way.
+Results...  FEAR, Confusion, Depression and Cognitive Disonance resulting in dehabilition of you physical body. 
+Solution...  Grounding yourself. Coming to a place of no-mind. Neutral, letting go of attachment's aka Taplines. Interruption of Taplines via the <a href="https://www.youtube.com/watch?v=-XGDHayyECU" target="_blank">sounds of NU-U-U-U...</a> 
+Possibilities...  REcognizing your personal Sovereignty.  Taking Authority and Responsibility over your Immortal Spirit. Getting off the wheel of re-incartion for another Kontrolled lifetime until you "get it". Developing an Awareness of REAL UNIverses with No Restrictions and BEing.  
+
+Taplining aka agreement to this or that.  Which interrupts your ability to just BE. I notice how nature BE's all around me.  What I get is; animals and nature don't create stuff to deal with.  The reside in pure Awareness.  The just BE...  It's a beautiful thing.
+
+Physical/Sexual Taplines
+Mental/Pyschological Taplines
+Emotional/Spiritual Taplines
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=PL8xPT6VXv6UfW5N-ejcaHzDK4OR3vF1kx" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<a href="https://www.instagram.com/_thevisitorhere/" target="_blank">thevisitorhere</a>
+<a href="https://twitter.com/_THEVISITORHERE" target="_blank">THEVISITORHERE</a>
+<a href="http://galacticwakeupwatch.strikingly.com/"_blank">galacticwakeupwatch</a>
+
 
