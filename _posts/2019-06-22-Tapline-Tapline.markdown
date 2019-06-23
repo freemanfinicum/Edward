@@ -20,11 +20,11 @@
 ___Taplining aka agreement to this or that.  Which interrupts your ability to just BE. I notice how nature BE's all around me.  What I get is; animals and nature don't create stuff to deal with.  They don't create Happiness, Depression, Politics, Religion ect... They reside in pure Awareness.  The just <a href="https://www.youtube.com/watch?v=Evht41pyNGU/" target=" blank">BE</a>...  It's a beautiful thing...___
 
 
- :alien: Physical/Sexual Taplines
+  :alien: Physical/Sexual Taplines
 
- :alien: Mental/Pyschological Taplines
+  :alien: Mental/Pyschological Taplines
 
- :alien: Emotional/Spiritual Taplines
+  :alien: Emotional/Spiritual Taplines
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=PL8xPT6VXv6UfW5N-ejcaHzDK4OR3vF1kx" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
