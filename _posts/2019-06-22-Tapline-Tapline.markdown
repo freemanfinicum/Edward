@@ -8,11 +8,11 @@
 
 This is what's REAL in my life...
 
-Who are the RATS...  Reptilian Alien TaplinerS-  
-What are they up to...  Taplining-  Kontrolling you in every which way.
-Results...  FEAR, Confusion, Depression and Cognitive Disonance resulting in dehabilition of you physical body. 
-Solution...  Grounding yourself. Coming to a place of no-mind. Neutral, letting go of attachment's aka Taplines. Interruption of Taplines via the <a href="https://www.youtube.com/watch?v=-XGDHayyECU" target="_blank">sounds of NU-U-U-U...</a> 
-Possibilities...  REcognizing your personal Sovereignty.  Taking Authority and Responsibility over your Immortal Spirit. Getting off the wheel of re-incartion for another Kontrolled lifetime until you "get it". Developing an Awareness of REAL UNIverses with No Restrictions and BEing.  
+1. Who are the RATS...  Reptilian Alien TaplinerS-  
+2. What are they up to...  Taplining-  Kontrolling you in every which way.
+3. Results...  FEAR, Confusion, Depression and Cognitive Disonance resulting in dehabilition of you physical body. 
+4. Solution...  Grounding yourself. Coming to a place of no-mind. Neutral, letting go of attachment's aka Taplines. Interruption of 5. Taplines via the <a href="https://www.youtube.com/watch?v=-XGDHayyECU" target="_blank">sounds of NU-U-U-U...</a> 
+6. Possibilities...  REcognizing your personal Sovereignty.  Taking Authority and Responsibility over your Immortal Spirit. Getting off the wheel of re-incartion for another Kontrolled lifetime until you "get it". Developing an Awareness of REAL UNIverses with No Restrictions and BEing.  
 
 Taplining aka agreement to this or that.  Which interrupts your ability to just BE. I notice how nature BE's all around me.  What I get is; animals and nature don't create stuff to deal with.  The reside in pure Awareness.  The just BE...  It's a beautiful thing.
 
