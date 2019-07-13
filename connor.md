@@ -7,7 +7,7 @@ permalink: /connor/
 ## This is Connor Reidhead's Space
 
 
-<a href="https://freemanfinicum.github.io/connor/" target="_blank">#Connor Reidhead's Space</a>
+<a href="https://freemanfinicum.github.io/connor/" target="_blank">Connor Reidhead's Space- Softer than the Rain...</a>
 
 
 
